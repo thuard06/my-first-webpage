@@ -2,7 +2,7 @@
 
 #### _Practice Lesson, 6.2.2020_
 
-#### By _**Chloe Hellberg**_
+#### By _**Ty Huard**_
 
 ## Description
 
